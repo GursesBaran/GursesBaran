@@ -11,4 +11,4 @@
 ![ezgif com-resize (4)](https://github.com/GursesBaran/GursesBaran/assets/130620042/752b4bf8-350e-469e-a614-e141b2cb45e4)
 ![ezgif com-resize (5)](https://github.com/GursesBaran/GursesBaran/assets/130620042/8128e839-29ec-4175-9f37-247f06c170e1)
 ![ezgif com-resize (6)](https://github.com/GursesBaran/GursesBaran/assets/130620042/222920ff-b0b8-4cfc-a8fb-02785c86c06a)
-![ezgif com-resize (7)](https://github.com/GursesBaran/GursesBaran/assets/130620042/ac4fe6bc-0e84-4db5-b7ea-ff8bf3cd625f)
+![ezgif com-resize (8)](https://github.com/GursesBaran/GursesBaran/assets/130620042/f09f0b39-e7b7-4a46-832b-e50988e4e727)
