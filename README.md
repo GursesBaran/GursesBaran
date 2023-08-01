@@ -11,5 +11,3 @@
 ![giphy](https://github.com/GursesBaran/GursesBaran/assets/130620042/422363fb-6374-43a0-a966-a6c73f51b3dc)
 ![giphy](https://github.com/GursesBaran/GursesBaran/assets/130620042/422363fb-6374-43a0-a966-a6c73f51b3dc)
 ![giphy](https://github.com/GursesBaran/GursesBaran/assets/130620042/422363fb-6374-43a0-a966-a6c73f51b3dc)
-![giphy](https://github.com/GursesBaran/GursesBaran/assets/130620042/422363fb-6374-43a0-a966-a6c73f51b3dc)
-
